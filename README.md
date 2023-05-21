@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Norparn
+- 👀 I’m interested in END of Mincrosoft Windows monopoly
+- 🌱 I’m currently learning Linux
+- 💞️ I’m looking to collaborate on Lenovo MIIX 2 20 to make all of them installeble of Linux system. Lenov has stop all atempt to do this!
+- 📫 How to reach me at my email address.
